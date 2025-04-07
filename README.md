@@ -1,1 +1,1 @@
-# nature_of_creature
+Creature Of Nature is a unique NFT collection that blends AI and art to create imaginary creatures inspired by nature. Each piece is one-of-a-kind, showing a mix of natural beauty and digital creativity. The collection explores how technology can reimagine the wild world around us in new and exciting ways.
